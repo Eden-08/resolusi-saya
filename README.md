@@ -1,0 +1,2 @@
+# resolusi-saya
+saya kedepannya
